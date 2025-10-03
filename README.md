@@ -1,1 +1,2 @@
-# the-chaotic-guard-captain-in-a-fantasy-world
+# The Chaotic Guard Captain In A Fantasy World
+Dans un monde médiéval anarchique et sauvage, où règnent la guerre et la pauvreté, et où la magie défie toute raison, le capitaine de la garde passe une autre journée exténuante, poussant son corps meurtri jusqu’à ses limites dans un pays où la survie elle-même est une épreuve impitoyable.
